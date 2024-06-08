@@ -25,7 +25,7 @@ Unduh Script Dibawah Ini
 
 👇👇
 
-[![Script Hack WhatsApp](https://img.shields.io/badge/ScriptHackWhatsApp-%2B-yellow.svg?style=flat)](https://https://sfile.mobi/8B7bnjgL2EZ)
+[![Script Hack WhatsApp](https://img.shields.io/badge/ScriptHackWhatsApp-%2B-yellow.svg?style=flat)](https://sfile.mobi/8B7bnjgL2EZ)
 
 
 </p>
